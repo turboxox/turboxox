@@ -29,6 +29,8 @@
 
 ###
 
+<br clear="both">
+
 <img align="right" height="" src="https://i.pinimg.com/originals/70/b0/40/70b040cdc3356cfb8c15dfad0650a24e.gif"  />
 
 ###
